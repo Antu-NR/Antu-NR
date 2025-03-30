@@ -11,3 +11,5 @@ Since GitHub gave me some ideas to get me started...
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: けものになりたい！
 --> Hehe, that wasn't hard, right?
+
+Thank you for visiting my profile!
